@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @hck0
+- 👀 I’m a designer.
+- 🌱 I’m an eternal student of the bits and the bytes.
